@@ -378,6 +378,7 @@ img {
     border-radius: 50%;
   {% endunless %}
   display: block;
+  background-color: #fff;
 }
 
 .navbar-custom.top-nav-expanded .avatar-container {
