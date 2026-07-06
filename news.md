@@ -1,5 +1,5 @@
 ---
 layout: news
-title: Østervænge
+title: Seneste nyt
 subtitle: Grundejerforeningen Østervænge
 ---
