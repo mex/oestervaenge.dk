@@ -31,6 +31,8 @@ navbar-links:
     - Priser Volosvej: "https://www.boliga.dk/salg/resultater?so=1&sort=omregnings_dato-d&maxsaledate=today&iPostnr=2300&gade=Volosvej&minsaledate=1992&searchTab=1"
     - Tinglysning: "https://www.tinglysning.dk/tmv/forespoergul"
     - Check priser på Bolighed: "https://bolighed.dk/"
+  Vedtægter:
+    - Gældende vedtægter: "/gaeldende-vedtaegter/"
   Kontakt bestyrelsen: "/kontakt-bestyrelsen/"
 
 ################
