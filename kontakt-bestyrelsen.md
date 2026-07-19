@@ -6,4 +6,4 @@ subtitle: Grundejerforeningen Østervænge
 
 ## Kontakt bestyrelsen
 
-Her kan du kontakte bestyrelsen.
+Bestyrelsen kan kontaktes ved at sende en mail til [bestyrelsen@østervænge.dk](mailto:bestyrelsen@østervænge.dk).
