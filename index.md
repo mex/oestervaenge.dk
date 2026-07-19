@@ -8,4 +8,5 @@ Velkommen til grundejerforeningen Østervænges hjemmeside.
 
 Foreningen hører hjemme i Sundbyøster, 2300 København S.
 
-![Matrikelkort over grundejerforening Østervænge]({{ '/assets/img/GF_Østervænge_26dec12_kopi.jpg' | relative_url }})
+<img alt="GF_Østervænge_26dec12_kopi" src="https://github.com/user-attachments/assets/c146d11f-2895-4e6b-a2b0-dfbe05d83a1a" />
+
