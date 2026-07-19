@@ -22,6 +22,8 @@ author: Grundejerforeningen Østervænge
 navbar-links:
   Forside: "/"
   Seneste nyt: "/seneste-nyt/"
+  Bestyrelsen:
+  - Bestyrelsen 23-24: "/Bestyrelsen23-24"
   Links:
     - Priser Grækenlandsvej: "https://www.boliga.dk/salg/resultater?so=1&sort=omregnings_dato-d&maxsaledate=today&iPostnr=2300&gade=Gr%C3%A6kenlandsvej&minsaledate=1992&searchTab=1"
     - Priser Kastrupvej: "https://www.boliga.dk/salg/resultater?so=1&sort=omregnings_dato-d&maxsaledate=today&iPostnr=2300&gade=Kastrupvej&minsaledate=1992&searchTab=1"
