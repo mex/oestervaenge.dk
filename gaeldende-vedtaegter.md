@@ -15,6 +15,7 @@ subtitle: Grundejerforeningen Østervænge
 <img alt="13, 19 04 30- Forslag til  revision af vedtægter Grundejerforeningen Østervænge_000007" src="https://github.com/user-attachments/assets/7536536d-e04d-47bf-a414-d65524a23067" />
 BILAG 1 + 2
 
-[Servitut af 12 juli 1929, Pligtigt medlemsskab af grundejerforening.pdf](https://github.com/user-attachments/files/30388903/Servitut.af.12.juli.1929.Pligtigt.medlemsskab.af.grundejerforening.pdf)
+<img alt="13, 19 04 30- Servitut af 12 juli 1929, Pligtigt medlemsskab af grundejerforening.pdf" src="
+https://github.com/user-ttachments/files/30388903/Servitut.af.12.juli.1929.Pligtigt.medlemsskab.af.grundejerforening"
 
 [Deklaration af 4 oktober 1920, Veje og byggeservitut.pdf](https://github.com/user-attachments/files/30388900/Deklaration.af.4.oktober.1920.Veje.og.byggeservitut.pdf)
