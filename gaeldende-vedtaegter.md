@@ -1,4 +1,3 @@
-[Deklaration af 4 oktober 1920, Veje og byggeservitut.pdf](https://github.com/user-attachments/files/30388892/Deklaration.af.4.oktober.1920.Veje.og.byggeservitut.pdf)
 ---
 layout: page
 title: Gældende vedtægter
