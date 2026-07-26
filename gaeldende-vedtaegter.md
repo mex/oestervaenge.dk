@@ -13,3 +13,4 @@ subtitle: Grundejerforeningen Østervænge
 <img alt="13, 19 04 30- Forslag til  revision af vedtægter Grundejerforeningen Østervænge_000005" src="https://github.com/user-attachments/assets/7e3622aa-1f21-4028-b5ce-926f041713a1" />
 <img alt="13, 19 04 30- Forslag til  revision af vedtægter Grundejerforeningen Østervænge_000006" src="https://github.com/user-attachments/assets/51c38652-4754-44fb-b8ac-18fdc089d138" />
 <img alt="13, 19 04 30- Forslag til  revision af vedtægter Grundejerforeningen Østervænge_000007" src="https://github.com/user-attachments/assets/7536536d-e04d-47bf-a414-d65524a23067" />
+BILAG 1 + 2
