@@ -4,31 +4,44 @@ Mødet afsluttet kl. 20.35.
 Der var 19 grundejere repræsenterede (23 deltagere til stede).  
 Fuldmagter: 8 stk. I alt 27 stemmeberettigede.  
 
-1. Valg af dirigent og referent.
+1. Valg af dirigent og referent.  
+
 
 Jens Cederskjold blev valgt til dirigent og Mette Tapdrup Mortensen til referent. Det blev konstateret, at generalforsamlingen var indkaldt efter reglerne i vedtægterne.  
 
-3. Formandens beretning.
+
+3. Formandens beretning.  
+
  
 Vejfesten i september blev endnu engang en stor succes med hoppeborg som tilløbsstykke og god gang i grill, sodavand og fadøl. Tak til vejfestudvalget.   
 
-Vejudvalgets arbejde har pågået i en længere periode i et fint samarbejde med ekstern rådgiver. Vi har nu et grundlag for at komme med gode forskønnelsesforslag, og arbejdet fortsætter. 
 
-Den nedkørte helle på hjørnet af Grækenlandsvej og Volosvej har der været en længere kommunikation med flere afdelinger i kommunen om. Kommunen vil ikke tage ejerskab over hellen, og det er svært at se en løsning på nuværende tidspunkt. Hjælp modtages gerne.
+Vejudvalgets arbejde har pågået i en længere periode i et fint samarbejde med ekstern rådgiver. Vi har nu et grundlag for at komme med gode forskønnelsesforslag, og arbejdet fortsætter.  
 
-Kantstensfejning blev gennemført 2/12. Der fejes hvor der kan fejes. Ved parkerede biler springes der over. Vi varsler 2-3 dage før hver fejning.
 
-Brøndrensning blev gennemført 3/12. Prisen er steget en smule, og næste gang må der forventes et ekstra energitillæg. Brønde med parkerede biler over springes over. Vi får desværre ikke besked på forhånd, men hvis vi gør, sender vi det ud.
+Den nedkørte helle på hjørnet af Grækenlandsvej og Volosvej har der været en længere kommunikation med flere afdelinger i kommunen om. Kommunen vil ikke tage ejerskab over hellen, og det er svært at se en løsning på nuværende tidspunkt. Hjælp modtages gerne.  
 
-Snerydning blev udført fra november til februar. Vores kontrakt omfatter ikke glatførebekæmpelse, det er grundejerens eget ansvar (både fortov og halv vejbane).
 
-Kontingentopkrævning forløb nogenlunde som sædvanligt. Enkelte har haft brug for en rykker, et par stykker flere, hvilke udløser gebyr og pålægger kassereren ekstra arbejde.
+Kantstensfejning blev gennemført 2/12. Der fejes hvor der kan fejes. Ved parkerede biler springes der over. Vi varsler 2-3 dage før hver fejning.  
 
-Vejgennemgang: Bestyrelsen har gennemgået vejene og observeret enkelte steder, hvor småreparationer kunne være ønskelige. Forslag til mulige entreprenører modtages gerne, ligesom hjælp til at stå for kommunikationen.
 
-Generelt opleves et øget ønske om fælles aktiviteter i grundejerforeningen, hvilket bliver udtrykt på Facebook og i mails til bestyrelsen. Bestyrelsen udfører det arbejde, der er udlagt i vedtægterne, og opfordrer til at møde op på generalforsamlingen, hvor vi gerne forklarer, hvad der foregår. Foreningen har til formål at vedligeholde vores veje (plus lidt mere), og det står alle grundejere frit for at komme med forslag. Vil man fremlægge et konkret forslag, er det en god idé at tage fat i bestyrelsen i forvejen og blive konkret – det gør det meget nemmere at få forslaget med som beslutningspunkt.
+Brøndrensning blev gennemført 3/12. Prisen er steget en smule, og næste gang må der forventes et ekstra energitillæg. Brønde med parkerede biler over springes over. Vi får desværre ikke besked på forhånd, men hvis vi gør, sender vi det ud.  
 
-Bestyrelsesmedlemmerne er valgte grundejere som alle andre. Har man tid og lyst, opfordres man til at deltage i størst muligt omfang. To bestyrelsesposter er ledige i år – meld jer gerne.
+
+Snerydning blev udført fra november til februar. Vores kontrakt omfatter ikke glatførebekæmpelse, det er grundejerens eget ansvar (både fortov og halv vejbane).  
+
+
+Kontingentopkrævning forløb nogenlunde som sædvanligt. Enkelte har haft brug for en rykker, et par stykker flere, hvilke udløser gebyr og pålægger kassereren ekstra arbejde.  
+
+
+Vejgennemgang: Bestyrelsen har gennemgået vejene og observeret enkelte steder, hvor småreparationer kunne være ønskelige. Forslag til mulige entreprenører modtages gerne, ligesom hjælp til at stå for kommunikationen.  
+
+
+Generelt opleves et øget ønske om fælles aktiviteter i grundejerforeningen, hvilket bliver udtrykt på Facebook og i mails til bestyrelsen. Bestyrelsen udfører det arbejde, der er udlagt i vedtægterne, og opfordrer til at møde op på generalforsamlingen, hvor vi gerne forklarer, hvad der foregår. Foreningen har til formål at vedligeholde vores veje (plus lidt mere), og det står alle grundejere frit for at komme med forslag. Vil man fremlægge et konkret forslag, er det en god idé at tage fat i bestyrelsen i forvejen og blive konkret – det gør det meget nemmere at få forslaget med som beslutningspunkt.  
+
+
+Bestyrelsesmedlemmerne er valgte grundejere som alle andre. Har man tid og lyst, opfordres man til at deltage i størst muligt omfang. To bestyrelsesposter er ledige i år – meld jer gerne.  
+
 
 5. Godkendelse af regnskab for 2025 samt budget for 2026/2027 Regnskabet blev godkendt uden anmærkninger.* Budgettet blev gennemgået. Aske uddybede fokus på vejvedligeholdelsen. Det er uvist, hvad det egentlig vil koste at reparere vejene, og der blev opfordret til, at man melder sig, hvis man vil være med til at lappe på en billig løsning.
 Behandling af indkomne forslag fra medlemmer Indkomne forslag: • Forslag 1: Indførelse af 3-timers parkeringsbegrænsning på foreningens private fællesveje. • Forslag 2: Tidsbegrænset parkering. • Forslag 3: Fodgængerfelt på Grækenlandsvej. Forslag 1 og 2 (sambehandlet): Forslag 1 (Alexander Kyhnel, Volosvej 3) og forslag 2 blev behandlet sammen, idet forslag 2 blev trukket tilbage, da forslagsstilleren (Peter Honoré, Volosvej 12) tiltrådte forslag 1. Forslagets kerne var, at der nedsættes en arbejdsgruppe, som skal udarbejde et gennembearbejdet forslag. Når dette skal godkendes, indkaldes der til en ekstraordinær generalforsamling. Der lægges intet fast på forhånd, og forskellige modeller skal undersøges. Det blev vedtaget at nedsætte en arbejdsgruppe. Arbejdsgruppen er åben, og følgende meldte sig: • Peter Honoré, Volosvej 12 • Alexander Kyhnel, Volosvej 3 • Hans Bach, Volosvej 8 • Jacob Mikkelsen, Volosvej 9 Forslag 3 – Fodgængerfelt på Grækenlandsvej: Forslagsstiller Peter Honoré, Volosvej 12. Der var positive tilkendegivelser til forslaget. Forslagsstiller bad om bemyndigelse til at gå videre med at undersøge sagen nærmere på grundejerforeningens vegne, da enkelte grundejere/borgere ikke kan rette denne type henvendelser til Københavns Kommune. Det blev opfordret til at tage kontakt til skolebestyrelsen/skoleledelsen på Gerbrandskolen. Det blev besluttet, at forslagsstiller i samarbejde med bestyrelsen og den allerede nedsatte parkeringsgruppe kan gå videre med forslagets intention – at tage kontakt til Københavns Kommune.
