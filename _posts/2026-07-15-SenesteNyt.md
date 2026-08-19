@@ -1,4 +1,4 @@
-Referat af ordinær generalforsamling i Grundejerforeningen Østervænge  
+**Referat af ordinær generalforsamling i Grundejerforeningen Østervænge  
 Tirsdag d. 28. april 2026 kl. 19:00 hos Brekling, Milosvej 13.  
 Mødet afsluttet kl. 20.35.  
 Der var 19 grundejere repræsenterede (23 deltagere til stede).  
