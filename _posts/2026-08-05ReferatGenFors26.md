@@ -64,7 +64,7 @@ Budgettet blev gennemgået. Aske uddybede fokus på vejvedligeholdelsen. Det er 
 • Forslag 3: Fodgængerfelt på Grækenlandsvej.  
 
 
-**Forslag 1 og 2 (sambehandlet):  **
+**Forslag 1 og 2 (sambehandlet):**  
 
 
 Forslag 1 (Alexander Kyhnel, Volosvej 3) og forslag 2 blev behandlet sammen, idet forslag 2 blev trukket tilbage, da forslagsstilleren (Peter Honoré, Volosvej 12) tiltrådte forslag 1. Forslagets kerne var, at der nedsættes en arbejdsgruppe, som skal udarbejde et gennembearbejdet forslag. Når dette skal godkendes, indkaldes der til en ekstraordinær generalforsamling. Der lægges intet fast på forhånd, og forskellige modeller skal undersøges.  
