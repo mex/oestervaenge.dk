@@ -49,7 +49,25 @@ Bestyrelsesmedlemmerne er valgte grundejere som alle andre. Har man tid og lyst,
 Budgettet blev gennemgået. Aske uddybede fokus på vejvedligeholdelsen. Det er uvist, hvad det egentlig vil koste at reparere vejene, og der blev opfordret til, at man melder sig, hvis man vil være med til at lappe på en billig løsning.
 
 
-4. Behandling af indkomne forslag fra medlemmer Indkomne forslag: • Forslag 1: Indførelse af 3-timers parkeringsbegrænsning på foreningens private fællesveje. • Forslag 2: Tidsbegrænset parkering. • Forslag 3: Fodgængerfelt på Grækenlandsvej. Forslag 1 og 2 (sambehandlet): Forslag 1 (Alexander Kyhnel, Volosvej 3) og forslag 2 blev behandlet sammen, idet forslag 2 blev trukket tilbage, da forslagsstilleren (Peter Honoré, Volosvej 12) tiltrådte forslag 1. Forslagets kerne var, at der nedsættes en arbejdsgruppe, som skal udarbejde et gennembearbejdet forslag. Når dette skal godkendes, indkaldes der til en ekstraordinær generalforsamling. Der lægges intet fast på forhånd, og forskellige modeller skal undersøges. Det blev vedtaget at nedsætte en arbejdsgruppe. Arbejdsgruppen er åben, og følgende meldte sig: • Peter Honoré, Volosvej 12 • Alexander Kyhnel, Volosvej 3 • Hans Bach, Volosvej 8 • Jacob Mikkelsen, Volosvej 9 Forslag 3 – Fodgængerfelt på Grækenlandsvej: Forslagsstiller Peter Honoré, Volosvej 12. Der var positive tilkendegivelser til forslaget. Forslagsstiller bad om bemyndigelse til at gå videre med at undersøge sagen nærmere på grundejerforeningens vegne, da enkelte grundejere/borgere ikke kan rette denne type henvendelser til Københavns Kommune. Det blev opfordret til at tage kontakt til skolebestyrelsen/skoleledelsen på Gerbrandskolen. Det blev besluttet, at forslagsstiller i samarbejde med bestyrelsen og den allerede nedsatte parkeringsgruppe kan gå videre med forslagets intention – at tage kontakt til Københavns Kommune.
+**4. Behandling af indkomne forslag fra medlemmer**  
+
+
+**Indkomne forslag:**  
+
+
+• Forslag 1: Indførelse af 3-timers parkeringsbegrænsning på foreningens private fællesveje.  
+
+
+• Forslag 2: Tidsbegrænset parkering.  
+
+
+• Forslag 3: Fodgængerfelt på Grækenlandsvej.  
+
+
+**Forslag 1 og 2 (sambehandlet):  **
+
+
+Forslag 1 (Alexander Kyhnel, Volosvej 3) og forslag 2 blev behandlet sammen, idet forslag 2 blev trukket tilbage, da forslagsstilleren (Peter Honoré, Volosvej 12) tiltrådte forslag 1. Forslagets kerne var, at der nedsættes en arbejdsgruppe, som skal udarbejde et gennembearbejdet forslag. Når dette skal godkendes, indkaldes der til en ekstraordinær generalforsamling. Der lægges intet fast på forhånd, og forskellige modeller skal undersøges. Det blev vedtaget at nedsætte en arbejdsgruppe. Arbejdsgruppen er åben, og følgende meldte sig: • Peter Honoré, Volosvej 12 • Alexander Kyhnel, Volosvej 3 • Hans Bach, Volosvej 8 • Jacob Mikkelsen, Volosvej 9 Forslag 3 – Fodgængerfelt på Grækenlandsvej: Forslagsstiller Peter Honoré, Volosvej 12. Der var positive tilkendegivelser til forslaget. Forslagsstiller bad om bemyndigelse til at gå videre med at undersøge sagen nærmere på grundejerforeningens vegne, da enkelte grundejere/borgere ikke kan rette denne type henvendelser til Københavns Kommune. Det blev opfordret til at tage kontakt til skolebestyrelsen/skoleledelsen på Gerbrandskolen. Det blev besluttet, at forslagsstiller i samarbejde med bestyrelsen og den allerede nedsatte parkeringsgruppe kan gå videre med forslagets intention – at tage kontakt til Københavns Kommune.
 Orientering om vejprojekt (vejudvalget) Vejudvalget har fået et skitseprojekt fra Sune, MASU-planning (landskabsarkitekt). Projektet har gennemgået mulighederne for forskønnelse og forgrønnelse. Der afholdes i løbet af de næste måneder et møde, hvor alle inviteres, og MASU-planning præsenterer projektet. Derefter indhentes yderligere perspektiver og ønsker, og på næste generalforsamling præsenteres de initiativer, der kræver økonomi – f.eks. som flere forslag. Der blev spurgt ind til OB-belægningerne på vejene, som siden 2018 er blevet omtalt som midlertidige. Der er en estimeret levetid på 15 år, og en foreløbig vurdering er, at de kan holde længere. Projektet dengang kostede 440.000 kr. Der vil komme nogle reparationer, men der vil ikke være behov for et stort projekt foreløbig.
 Orientering om vejgennemgang v. bestyrelsen Bestyrelsen har lavet en gennemgang af alle veje med henblik på overblik over eventuelle huller og revner, der ikke er lovformelige. Københavns Kommune angiver som vejmyndighed ikke præcise mål for, hvad der er lovformeligt. Bestyrelsen har anvendt ca. 3 cm som målestok. Der er fundet 25 steder med anmærkninger – f.eks. revner i fliser og lunker med gab på mere end 3 cm. Der er ikke indhentet tilbud på arbejdet. Tidligere tilbud på lignende opgaver har ligget mellem 130.000 og 250.000 kr. Der var stemning for, at grundejerforeningen selv udbedrer hullerne. Har man viden, evner eller lyst til at hjælpe – eller kender en entreprenør – kan formanden kontaktes.
 Valg Bestyrelsesmedlemmer for 2 år på valg: • Jens Cederskjold (ønskede ikke genvalg) • Mette Tapdrup Mortensen (ønskede ikke genvalg) Indvalgt blev: • Henrik Langer Carlsen, Volosvej 18 • Tommy Daugaard Sørensen, Kastrupvej 138 Revisorer for 1 år: • Jay Bendtsen • Lars Kiær Revisorsuppleant for 1 år: • Henrik Larsen
