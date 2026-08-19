@@ -114,7 +114,21 @@ Der var stemning for, at grundejerforeningen selv udbedrer hullerne. Har man vid
 • Lars Kiær  
 
 
-Revisorsuppleant for 1 år: • Henrik Larsen
-Eventuelt Bestyrelsesansvarsforsikring er blevet nævnt ved generalforsamlingen i 2024 og 2025. Aske meddelte, at den nu tiltrædes. Omkostningen er ca. 2.500 kr. årligt. Dermed er der bl.a. mulighed for en vis juridisk bistand samt dækning omkring bestyrelsesansvar.
-Note vedrørende opsparingen Ved tidligere generalforsamlinger er der stillet spørgsmål til formålet med opsparingen, der i 2026 vil nå op på ca. 1 mio. kr. Svar: For 8 år siden var der afsat penge til et vejprojekt. Projektet blev stemt ned, fordi foreningen muligvis kunne komme med i en større klimaplan fra HOFOR, hvilket ville betyde, at vejene skulle graves op igen. Vi prioriterede derfor en OB-belægning. I 2024 blev vi bekendte med, at vi ikke er en del af planen. Der skal således laves veje og fortove, men det kan vente til OB-belægningen ikke holder mere – den kan måske holde 10 år endnu. Opsparingen skal sikre, at der er en startkapital til den tid.
+**Revisorsuppleant for 1 år:**  
+• Henrik Larsen  
+
+
+**8. Eventuelt**  
+
+
+Bestyrelsesansvarsforsikring er blevet nævnt ved generalforsamlingen i 2024 og 2025. Aske meddelte, at den nu tiltrædes. Omkostningen er ca. 2.500 kr. årligt. Dermed er der bl.a. mulighed for en vis juridisk bistand samt dækning omkring bestyrelsesansvar.  
+
+
+**Note vedrørende opsparingen**  
+
+
+Ved tidligere generalforsamlinger er der stillet spørgsmål til formålet med opsparingen, der i 2026 vil nå op på ca. 1 mio. kr.  
+
+
+Svar: For 8 år siden var der afsat penge til et vejprojekt. Projektet blev stemt ned, fordi foreningen muligvis kunne komme med i en større klimaplan fra HOFOR, hvilket ville betyde, at vejene skulle graves op igen. Vi prioriterede derfor en OB-belægning. I 2024 blev vi bekendte med, at vi ikke er en del af planen. Der skal således laves veje og fortove, men det kan vente til OB-belægningen ikke holder mere – den kan måske holde 10 år endnu. Opsparingen skal sikre, at der er en startkapital til den tid.
 
