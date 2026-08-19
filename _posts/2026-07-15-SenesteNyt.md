@@ -43,7 +43,7 @@ Generelt opleves et øget ønske om fælles aktiviteter i grundejerforeningen, h
 Bestyrelsesmedlemmerne er valgte grundejere som alle andre. Har man tid og lyst, opfordres man til at deltage i størst muligt omfang. To bestyrelsesposter er ledige i år – meld jer gerne.  
 
 
-3. Godkendelse af regnskab for 2025 samt budget for 2026/2027. Regnskabet blev godkendt uden anmærkninger.*
+**3. Godkendelse af regnskab for 2025 samt budget for 2026/2027. Regnskabet blev godkendt uden anmærkninger.**
 
 
 Budgettet blev gennemgået. Aske uddybede fokus på vejvedligeholdelsen. Det er uvist, hvad det egentlig vil koste at reparere vejene, og der blev opfordret til, at man melder sig, hvis man vil være med til at lappe på en billig løsning.
