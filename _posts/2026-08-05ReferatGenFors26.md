@@ -94,8 +94,27 @@ Der blev spurgt ind til OB-belægningerne på vejene, som siden 2018 er blevet o
 
 
 **6. Orientering om vejgennemgang v. bestyrelsen**  
-Bestyrelsen har lavet en gennemgang af alle veje med henblik på overblik over eventuelle huller og revner, der ikke er lovformelige. Københavns Kommune angiver som vejmyndighed ikke præcise mål for, hvad der er lovformeligt. Bestyrelsen har anvendt ca. 3 cm som målestok. Der er fundet 25 steder med anmærkninger – f.eks. revner i fliser og lunker med gab på mere end 3 cm. Der er ikke indhentet tilbud på arbejdet. Tidligere tilbud på lignende opgaver har ligget mellem 130.000 og 250.000 kr. Der var stemning for, at grundejerforeningen selv udbedrer hullerne. Har man viden, evner eller lyst til at hjælpe – eller kender en entreprenør – kan formanden kontaktes.
-Valg Bestyrelsesmedlemmer for 2 år på valg: • Jens Cederskjold (ønskede ikke genvalg) • Mette Tapdrup Mortensen (ønskede ikke genvalg) Indvalgt blev: • Henrik Langer Carlsen, Volosvej 18 • Tommy Daugaard Sørensen, Kastrupvej 138 Revisorer for 1 år: • Jay Bendtsen • Lars Kiær Revisorsuppleant for 1 år: • Henrik Larsen
+Bestyrelsen har lavet en gennemgang af alle veje med henblik på overblik over eventuelle huller og revner, der ikke er lovformelige. Københavns Kommune angiver som vejmyndighed ikke præcise mål for, hvad der er lovformeligt. Bestyrelsen har anvendt ca. 3 cm som målestok. Der er fundet 25 steder med anmærkninger – f.eks. revner i fliser og lunker med gab på mere end 3 cm. Der er ikke indhentet tilbud på arbejdet. Tidligere tilbud på lignende opgaver har ligget mellem 130.000 og 250.000 kr.  
+
+
+Der var stemning for, at grundejerforeningen selv udbedrer hullerne. Har man viden, evner eller lyst til at hjælpe – eller kender en entreprenør – kan formanden kontaktes.  
+
+
+**7. Valg Bestyrelsesmedlemmer for 2 år på valg:**   
+ • Jens Cederskjold (ønskede ikke genvalg)  
+ • Mette Tapdrup Mortensen (ønskede ikke genvalg)  
+ 
+ **Indvalgt blev:**.  
+ • Henrik Langer Carlsen, Volosvej 18  
+ • Tommy Daugaard Sørensen, Kastrupvej 138  
+ 
+ 
+**Revisorer for 1 år:**  
+• Jay Bendtsen  
+• Lars Kiær  
+
+
+Revisorsuppleant for 1 år: • Henrik Larsen
 Eventuelt Bestyrelsesansvarsforsikring er blevet nævnt ved generalforsamlingen i 2024 og 2025. Aske meddelte, at den nu tiltrædes. Omkostningen er ca. 2.500 kr. årligt. Dermed er der bl.a. mulighed for en vis juridisk bistand samt dækning omkring bestyrelsesansvar.
 Note vedrørende opsparingen Ved tidligere generalforsamlinger er der stillet spørgsmål til formålet med opsparingen, der i 2026 vil nå op på ca. 1 mio. kr. Svar: For 8 år siden var der afsat penge til et vejprojekt. Projektet blev stemt ned, fordi foreningen muligvis kunne komme med i en større klimaplan fra HOFOR, hvilket ville betyde, at vejene skulle graves op igen. Vi prioriterede derfor en OB-belægning. I 2024 blev vi bekendte med, at vi ikke er en del af planen. Der skal således laves veje og fortove, men det kan vente til OB-belægningen ikke holder mere – den kan måske holde 10 år endnu. Opsparingen skal sikre, at der er en startkapital til den tid.
 
