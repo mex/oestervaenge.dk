@@ -1,16 +1,16 @@
-**Referat af ordinær generalforsamling i Grundejerforeningen Østervænge  
+**Referat af ordinær generalforsamling i Grundejerforeningen Østervænge**  
 Tirsdag d. 28. april 2026 kl. 19:00 hos Brekling, Milosvej 13.  
 Mødet afsluttet kl. 20.35.  
 Der var 19 grundejere repræsenterede (23 deltagere til stede).  
 Fuldmagter: 8 stk. I alt 27 stemmeberettigede.  
 
-1. Valg af dirigent og referent.  
+**1. Valg af dirigent og referent.**  
 
 
 Jens Cederskjold blev valgt til dirigent og Mette Tapdrup Mortensen til referent. Det blev konstateret, at generalforsamlingen var indkaldt efter reglerne i vedtægterne.  
 
 
-2. Formandens beretning.  
+**2. Formandens beretning.**  
 
  
 Vejfesten i september blev endnu engang en stor succes med hoppeborg som tilløbsstykke og god gang i grill, sodavand og fadøl. Tak til vejfestudvalget.   
