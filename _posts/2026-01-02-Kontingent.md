@@ -1,1 +1,28 @@
+Kære medlemmer af grundejerforeningen Østervænge,  
+Amager 2/1-2026  
 
+
+Godt nytår til alle og velkommen igen til jer, der flyttede ind i foreningen i løbet af 2025.  
+Det er tid til den årlige betaling af kontingent til grundejerforeningen.  
+
+
+Kontingentet for 2026 er fastsat i henhold til beslutning på generalforsamlingen den 27. april 2015, hvor en årlig stigning på 50 kr. pr. parcel blev vedtaget.
+
+
+Kontingent for 2026 er derfor: 2.450 kr. pr. parcel.  
+Dog 1225 kr. for hhv. stue- og 1. sals lejlighed på adresserne Milosvej 3, 4 og 19.  
+
+
+Kontingentet bedes betalt inden fredag d. 30. januar 2026 via overførsel til foreningens konto i Danske Bank: Reg. nr. 4085 konto 5657717, husk at angive hvilken ejendom indbetalingen vedrører.  
+**OBS!OBS!OBS! Skriv sådan her i teksten: Kon2026 xxVej nr. xx**
+Altså KON2026 MI07 (for Milosvej 7)  
+
+
+Vedhæftet mailen er et brev med et par andre gode informationer om snerydning og belysning.  
+
+
+Bedste hilsner  
+Mette Tapdrup Mortensen, kasserer, på vegne af foreningen bestyrelse  
+
+
+Ps. Jeg gør mit bedste for at holde styr på e-mail-adresser. Hvis der er fejl i denne udsendelse, så skriv det gerne til mig.  
