@@ -7,9 +7,15 @@ Dagsorden
 **2. Formandens beretning**  
 **3. Godkendelse af regnskab for 2025 samt budget for 2026/2027**   
 **4. Behandling af indkomne forslag fra medlemmer:**  
-Forslag 1. Forslag om indførelse af 3-timers parkeringsbegrænsning på foreningens private fællesveje
-Forslag 2. Tidsbegrænset parkering
-Forslag 3. Fodgængerfelt på Grækenlandsvej
+Forslag 1. Forslag om indførelse af 3-timers parkeringsbegrænsning på foreningens private fællesveje  
+
+
+Forslag 2. Tidsbegrænset parkering  
+
+
+Forslag 3. Fodgængerfelt på Grækenlandsvej  
+
+
 **5. Orientering om vejprojekt (vejudvalget)**
 **6. Orientering om vejgennemgang v. bestyrelsen**
 **7. Valg:**
