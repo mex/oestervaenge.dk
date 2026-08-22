@@ -17,18 +17,18 @@ Forslag 3. Fodgængerfelt på Grækenlandsvej
 
 
 **5. Orientering om vejprojekt (vejudvalget)**
-**6. Orientering om vejgennemgang v. bestyrelsen**
-**7. Valg:**
-Bestyrelsesmedlemmer for 2 år på valg:
-a.	Jens Cederskjold (ønsker ikke genvalg)
-b.	Mette Tapdrup Mortensen (ønsker ikke genvalg)
+**6. Orientering om vejgennemgang v. bestyrelsen**  
+**7. Valg:**  
+Bestyrelsesmedlemmer for 2 år på valg:  
+a.	Jens Cederskjold (ønsker ikke genvalg)  
+b.	Mette Tapdrup Mortensen (ønsker ikke genvalg)  
 
-Revisorer for 1 år:
-a. Jay Bendtsen 
-b. Lars Kiær
+Revisorer for 1 år:  
+a. Jay Bendtsen   
+b. Lars Kiær  
 
-Revisorsuppleant for 1 år:
-a. Henrik Larsen
+Revisorsuppleant for 1 år:  
+a. Henrik Larsen  
 
 **7. Eventuelt**
 
