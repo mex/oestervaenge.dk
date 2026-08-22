@@ -1,18 +1,18 @@
-Indkaldelse til ordinær generalforsamling i grundejerforeningen Østervænge
+**Indkaldelse til ordinær generalforsamling i grundejerforeningen Østervænge**
 
 Tirsdag d. 28. april 2026 kl. 19:00 hos Brekling, Milosvej 13. 
 
 Dagsorden
-1. Valg af dirigent/referent
-2. Formandens beretning
-3. Godkendelse af regnskab for 2025 samt budget for 2026/2027 
-4. Behandling af indkomne forslag fra medlemmer:
+**1. Valg af dirigent/referent**
+**2. Formandens beretning**
+**3. Godkendelse af regnskab for 2025 samt budget for 2026/2027** 
+**4. Behandling af indkomne forslag fra medlemmer:**
 Forslag 1. Forslag om indførelse af 3-timers parkeringsbegrænsning på foreningens private fællesveje
 Forslag 2. Tidsbegrænset parkering
 Forslag 3. Fodgængerfelt på Grækenlandsvej
-5. Orientering om vejprojekt (vejudvalget)
-6. Orientering om vejgennemgang v. bestyrelsen
-7. Valg:
+**5. Orientering om vejprojekt (vejudvalget)**
+**6. Orientering om vejgennemgang v. bestyrelsen**
+**7. Valg:**
 Bestyrelsesmedlemmer for 2 år på valg:
 a.	Jens Cederskjold (ønsker ikke genvalg)
 b.	Mette Tapdrup Mortensen (ønsker ikke genvalg)
@@ -24,7 +24,7 @@ b. Lars Kiær
 Revisorsuppleant for 1 år:
 a. Henrik Larsen
 
-7. Eventuelt
+**7. Eventuelt**
 
 ----------------------------------------------------------------------------------------------------------
 Forslag, der ønskes behandlet, skal være formanden i hænde senest d. onsdag d. 22. april 2026. (5 hverdage før) – men gerne hurtigst muligt. Forslag fremsendes pr. mail til aske@brekling.dk. 
