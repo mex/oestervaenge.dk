@@ -33,7 +33,7 @@ a. Henrik Larsen
 **7. Eventuelt**
 
 ----------------------------------------------------------------------------------------------------------
-Forslag, der ønskes behandlet, skal være formanden i hænde senest d. onsdag d. 22. april 2026. (5 hverdage før) – men gerne hurtigst muligt. Forslag fremsendes pr. mail til aske@brekling.dk. 
+Forslag, der ønskes behandlet, skal være formanden i hænde senest d. onsdag d. 22. april 2026. (5 hverdage før) – men gerne hurtigst muligt. Forslag fremsendes pr. mail til [aske@brekling.dk](mailto:aske@brekling.dk) 
 
 Foreningen er vært ved et par stykker smørrebrød efter generalforsamlingen. Af hensyn til bestilling af mad beder vi jer om tilmelding via mail eller SMS senest fredag d. 24. april 2026 kl. 12. Skriv til tapdrupmortensen@gmail.com eller 20616769.
 
