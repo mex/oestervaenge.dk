@@ -4,20 +4,18 @@ layout: page
 
 {{ content }}
 
-{% assign posts = paginator.posts | default: site.posts %}
-
 {% if page.year %}
   {% assign target_year = page.year | append: "" %}
   {% assign filtered_posts = "" | split: "" %}
   
-  {% for post in posts %}
+  {% for post in site.posts %}
     {% assign post_year = post.date | date: "%Y" %}
     {% if post_year == target_year %}
       {% assign filtered_posts = filtered_posts | push: post %}
     {% endif %}
   {% endfor %}
 {% else %}
-  {% assign filtered_posts = posts | slice: 0, 10 %}
+  {% assign filtered_posts = site.posts | slice: 0, 10 %}
 {% endif %}
 
 <!-- role="list" needed so that `list-style: none` in Safari doesn't remove the list semantics -->
