@@ -14,5 +14,5 @@ gem "wdm", "~> 0.1", :platforms => [:mingw, :x64_mingw, :mswin]
 
 # Needed for Jekyll (or perhaps Liquid) to work on Ruby 3.4.0 and up
 gem 'bigdecimal'
-  
+
 gemspec

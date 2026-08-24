@@ -1,6 +1,6 @@
 ---
 layout: news
-title: Arkiv 2025
+title: Arkiv 2026
 subtitle: Grundejerforeningen Østervænge
-year: 2025
+year: 2026
 ---

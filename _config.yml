@@ -37,6 +37,7 @@ navbar-links:
     - Tinglysning: "https://www.tinglysning.dk/tmv/forespoergul"
   Kontakt bestyrelsen: "/kontakt-bestyrelsen/"
   Arkiv: 
+   - Arkiv 2026: "/arkiv-2026/"
    - Arkiv 2025: "/arkiv-2025/"
   
 ################
@@ -154,7 +155,7 @@ timezone: "Europe/Copenhagen"
 markdown: kramdown
 highlighter: rouge
 permalink: /:year-:month-:day-:title/
-paginate: 5
+# paginate: 5
 
 kramdown:
   input: GFM
