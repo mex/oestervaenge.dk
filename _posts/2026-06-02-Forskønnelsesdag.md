@@ -18,8 +18,7 @@ Næste skridt
 
 
 Her er et link til materialet, hvis I vil se på det forinden.  
-[https://we.tl/t-ydnBiLrsze6eaHGG](https://we.tl/t-ydnBiLrsze6eaHGG/)  
-Linket udløber efter nogle dage, så giv blot lyd, hvis jeg skal gensende til jer  
+Se "Seneste nyt" dateret 2026-06-03-Østervænge-Amager
 
 
 Skriv/ring til Birgitte, hvis du har spørgsmål: tlf. 22348786 - [birgittebsvarre@gmail.com](mailto:birgittebsvarre@gmail.com)  
