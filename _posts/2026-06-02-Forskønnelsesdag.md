@@ -18,7 +18,7 @@ Næste skridt
 
 
 Her er et link til materialet, hvis I vil se på det forinden.  
-Se "Seneste nyt" dateret 2026-06-03-Østervænge-Amager
+Se "Seneste nyt" "Østervænge Amager" dateret 03/06-2026
 
 
 Skriv/ring til Birgitte, hvis du har spørgsmål: tlf. 22348786 - [birgittebsvarre@gmail.com](mailto:birgittebsvarre@gmail.com)  
