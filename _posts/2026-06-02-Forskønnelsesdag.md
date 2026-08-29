@@ -22,7 +22,7 @@ https://we.tl/t-ydnBiLrsze6eaHGG
 Linket udløber efter nogle dage, så giv blot lyd, hvis jeg skal gensende til jer  
 
 
-Skriv/ring til Birgitte, hvis du har spørgsmål: tlf. 22348786 - birgittebsvarre@gmail.com  
+Skriv/ring til Birgitte, hvis du har spørgsmål: tlf. 22348786 - [birgittebsvarre@gmail.com](mailto:birgittebsvarre@gmail.com)  
 
 
 På vegne af Vejudvalget,  
