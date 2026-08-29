@@ -12,7 +12,7 @@ Vi fik besluttet, at:
 
 
 Alle er velkomne i vejudvalget.  
-Skriv hvis du er interesseret til Birgitte, Parosvej 1 på birgittebsvarre@gmail.com eller skriv/ring på tlf. 22348786
+Skriv hvis du er interesseret til Birgitte, Parosvej 1 på [birgittebsvarre@gmail.com](mailto:birgittebsvarre@gmail.com) eller skriv/ring på tlf. 22348786
 
 
 God sommer,  
