@@ -10,12 +10,20 @@ Torsdag den 18. juni kl. 19-21
 Sted: Milosvej 13 i kælderen (hos formanden for GF Østervænge, Aske, tusind tak :-))  
 
 
-Program:
-Velkommen ved Birgitte, vejudvalget
-Præsentation “Begrønningsstrategi for Østervænge” ved Sune Oslev, MASU Planning Spørgsmål og dialog
-Næste skridt
-Her er et link til materialet, hvis I vil se på det forinden.
-https://we.tl/t-ydnBiLrsze6eaHGG
-Linket udløber efter nogle dage, så giv blot lyd, hvis jeg skal gensende til jer
-Skriv/ring til Birgitte, hvis du har spørgsmål: tlf. 22348786 - birgittebsvarre@gmail.com
-På vegne af Vejudvalget, Birgitte Svarre, Parosvej 1
+Program:  
+Velkommen ved Birgitte, vejudvalget. 
+Præsentation “Begrønningsstrategi for Østervænge” ved Sune Oslev, MASU Planning.  
+Spørgsmål og dialog  
+Næste skridt  
+
+
+Her er et link til materialet, hvis I vil se på det forinden.  
+https://we.tl/t-ydnBiLrsze6eaHGG  
+Linket udløber efter nogle dage, så giv blot lyd, hvis jeg skal gensende til jer  
+
+
+Skriv/ring til Birgitte, hvis du har spørgsmål: tlf. 22348786 - birgittebsvarre@gmail.com  
+
+
+På vegne af Vejudvalget,  
+Birgitte Svarre, Parosvej 1
