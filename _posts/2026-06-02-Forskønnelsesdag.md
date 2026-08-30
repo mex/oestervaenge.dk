@@ -17,7 +17,7 @@ Spørgsmål og dialog
 Næste skridt  
 
 
-[Her er et link til materialet](2026-06-03-Østervænge-Amager/), hvis I vil se på det forinden.  
+[Her er et link til materialet](/2026-06-03-Østervænge-Amager), hvis I vil se på det forinden.  
 Ellers se "Seneste nyt" "Østervænge Amager" dateret 03/06-2026
 
 
