@@ -1,3 +1,8 @@
+---
+layout: post
+title: Forskønnelsesdag opfølgning 2026
+---
+
 Kære alle  
 
 
