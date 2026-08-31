@@ -1,3 +1,8 @@
+---
+layout: post
+title: Begrønningsprojekt 2026
+---
+
 <img alt="20260327 Østervange Amager-MASU-01" src="https://github.com/user-attachments/assets/8580f4dc-40bf-4aba-a0e6-a9f97dd19688" />
 <img alt="20260327 Østervange Amager-MASU-02" src="https://github.com/user-attachments/assets/6e6af8a3-3f21-485a-881b-7675e6687f27" />
 <img alt="20260327 Østervange Amager-MASU-03" src="https://github.com/user-attachments/assets/b4b378fd-5328-4a61-9110-9c70680b2874" />
