@@ -1,3 +1,8 @@
+---
+layout: post
+title: Forskønnelsesdag indbydelse 2026
+---
+
 Kære alle i Grundejerforeningen Østervænge  
 
 
