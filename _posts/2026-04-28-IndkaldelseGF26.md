@@ -1,3 +1,8 @@
+---
+layout: post
+title: Indkaldelse til ordinær generalforsamling 2026
+---
+
 **Indkaldelse til ordinær generalforsamling i grundejerforeningen Østervænge**
 
 Tirsdag d. 28. april 2026 kl. 19:00 hos Brekling, Milosvej 13. 
