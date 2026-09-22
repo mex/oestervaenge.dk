@@ -12,7 +12,7 @@ Fuldmagter: 3 stk.
 I alt 20 stemmeberettigede  
 
 
-**Referat**
+**Referat**  
 **1.Valg af dirigent/referent**  
 Jens Cederskjold blev valgt til dirigent. Mette Tapdrup Mortensen som referent.  
 Det blev konstateret, at GF var indkaldt efter reglerne i vedtægterne.  
