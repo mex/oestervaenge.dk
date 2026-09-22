@@ -38,7 +38,7 @@ Der var et spørgsmål til formålet med opsparingen, der i 2026 vil nå op på 
 Svar: For 8 år siden var der afsat penge til et vejprojekt. Projektet blev stemt ned fordi foreningen måske kunne komme med i en større klimaplan fra HOFOR, hvilket ville betyde, at vejene skulle graves op igen. Vi ofrede derfor penge på en OP-belægning. I 2024 blev vi bekendte med, at vi ikke er en del af planen. Så der skal laves veje og fortove, men det kan vente til OB-belægningen ikke holder mere. Den kan måske holde 10 år endnu. Opsparingen skal sikre, at der er en startkapital til den tid.  
 
 
-**4. Behandling af evt. indkomne forslag**
+**4. Behandling af evt. indkomne forslag**  
 Der var ikke kommet forslag.  
 
 
