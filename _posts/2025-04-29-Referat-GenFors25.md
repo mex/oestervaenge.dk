@@ -4,14 +4,21 @@ title: Referat Generalforsamling 2025
 subtitle: Grundejerforeningen Østervænge
 ---
 
- Referat af ordinær generalforsamling i Grundejerforeningen Østervænge
-Tirsdag d. 29. april 2025 kl. 19:00 hos Brekling, Milosvej 13. Afsluttes 20.15.
-Der var 17 grundejere repræsenterede (21 deltagere til stede) Fuldmagter: 3 stk.
-I alt 20 stemmeberettigede
-Referat
-1.Valg af dirigent/referent
-Jens Cederskjold blev valgt til dirigent. Mette Tapdrup Mortensen som referent. Det blev konstateret, at GF var indkaldt efter reglerne i vedtægterne.
-2. Formandens beretning
+**Referat af ordinær generalforsamling i Grundejerforeningen Østervænge**  
+Tirsdag d. 29. april 2025 kl. 19:00 hos Brekling, Milosvej 13.  
+Afsluttes 20.15.  
+Der var 17 grundejere repræsenterede (21 deltagere til stede)  
+Fuldmagter: 3 stk.  
+I alt 20 stemmeberettigede  
+
+
+**Referat**
+**1.Valg af dirigent/referent**  
+Jens Cederskjold blev valgt til dirigent. Mette Tapdrup Mortensen som referent.  
+Det blev konstateret, at GF var indkaldt efter reglerne i vedtægterne.  
+
+
+**2. Formandens beretning**  
 Formanden takkede Jens og Anne Grethe, Milosvej 11 for at lægge hus til generalforsamlingen i 2023 Der har været afholdt sommerfest og halloween. Ingen af delene er noget bestyrelsen arrangerer, så tak til de frivillige i foreningen, der er med til at holde live i disse traditioner.
 Vi renser normalt kun brønde en gang årligt, men som det fremgår af regnskabet er det sket to gange i 2024, da en gang i 2023 blev forskudt.
 Vores kontrakt på snerydning udløber i marts 2025. Bestyrelsen vil forsøge at forlænge den eksisterende kontrakt. Det vurderes, at det er en meget fordelagtig pris (ca. 20.000 kr. årligt). Dog forventer vi en almindelig prisstigning, da kontrakten blev indgået i 2019 til fastpris.
